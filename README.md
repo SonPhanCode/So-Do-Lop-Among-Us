@@ -1,4 +1,4 @@
-# So-Do-Lop-Among-Us
+# Sơ Đồ Lớp Among Us
 
 Link Trực Tiếp: http://bluenandong.surge.sh/sodolop/
 
